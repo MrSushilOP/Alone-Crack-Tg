@@ -1,0 +1,2 @@
+# Alone-Crack-Tg
+ALONE CRACK VC DDOS POWER FULL BOT
